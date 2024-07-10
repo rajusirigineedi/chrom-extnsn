@@ -23,3 +23,7 @@ For further guidance, [visit our Documentation](https://docs.plasmo.com/).
 
 Here is the video
 
+
+
+https://github.com/rajusirigineedi/chrom-extnsn/assets/75467803/f240dd5d-1871-4853-b2ab-2a693241b989
+
